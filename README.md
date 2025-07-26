@@ -1,6 +1,6 @@
 ## Hi 👋
 
-old account @ [lorena-rosati](https://github.com/lorena-rosati) :/
+new account :D
 <!--
 **lorenarosati/lorenarosati** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
